@@ -1,1 +1,0 @@
-Gambar Sketsa Project Tertanam
